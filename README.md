@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sl1usarchuk
+- 👋 Hi, I’m @p1pearony
 - 👀 I’m interested in the study of phyton, self-development and something like that.
 - 🌱 I’m currently learning phyton.
 - 📫 How to reach me: instagram - @ja_klaw | telegram - @myroslav55 | snapchat - @myr0slaw.
